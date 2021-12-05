@@ -1,0 +1,3 @@
+One day there was a Rabbit and a Tortoise.The Rabbit used to boast a lot about his speed of running in front of all other animals.Then on one day the while the Rabbit was boasting avout him,the tortoise interupted him and said 'Not to boast a lot about yorself'.
+This made the Rabbit angry and he challanged the Tortoise for a race with him and the Tortoise ageed for it.All the animals were surprised.
+The next day at the start point of the race, they both decided the ending point of the race at the top of the hill and they soon started the race. 
